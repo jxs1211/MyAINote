@@ -18,3 +18,6 @@ Techno-economic paradigms
 这一次新工具的使用和认知会把人和人的距离拉开
 聪明、勤奋、努力会使用工具的人会很快拉开你和周围人的距离
 
+
+
+![image-20230616092745989](C:\Users\xjshen\AppData\Roaming\Typora\typora-user-images\image-20230616092745989.png)
